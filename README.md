@@ -1,1 +1,1 @@
-# practice
+# practice-time: all students must do hardwork
